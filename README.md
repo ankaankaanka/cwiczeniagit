@@ -1,3 +1,3 @@
 to jest moje repozytorium
 
-ale smieszne hahaha xdxdxd
+ale smieszne hahaha xdxdxd :D
